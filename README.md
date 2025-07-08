@@ -10,4 +10,4 @@
 
 本站精选中外高品质视频内容，每日持续更新，涵盖多种类型与题材。多平台兼容，无需注册，点击即播，为您带来便捷、纯净的高清观影体验，是您不容错过的影音首选。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan17 ）</span>
